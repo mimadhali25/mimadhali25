@@ -15,7 +15,7 @@
 
 - 📝 I regularly write articles on [https://www.linkedin.com/in/mima-dhali-810812267](https://www.linkedin.com/in/mima-dhali-810812267)
 
-- 📫 How to reach me **mima.dhali.21@aot.edu.in**
+- 📫 How to reach me **mimadhali2003@gmail.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/mima-dhali-810812267](https://www.linkedin.com/in/mima-dhali-810812267)
 
